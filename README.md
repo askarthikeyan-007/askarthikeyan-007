@@ -2,6 +2,6 @@
 - 👀 I’m interested in Game developement 
 - 🌱 I’m currently learning Python , Game developing Courses
 - 💞️ I’m looking to collaborate on Game developement
-- 📫 How to reach me Nothing If any wanna dm me 
+- 📫 If anyone need me dm me on instagram -- imak7__
 - 😄 Pronouns:HE/HIM ...
 - ⚡ Fun fact: ENJOY AND TRAVEL THE WORLD BEFORE ITS COVERS YOU...!!!!!!!!!!!
