@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @askarthikeyan-007
-- 👀 I’m interested in Game developement 
-- 🌱 I’m currently learning Python , Game developing Courses
-- 💞️ I’m looking to collaborate on Game developement
+- 👀 I’m interested in Game development , App Development
+- 🌱 I’m currently Java , Rust 
+- 💞️ I’m looking for Peoples who love to work on Game developement
 - 📫 If anyone need me dm me on instagram -- imak7__
-- 😄 Pronouns:HE/HIM ...
-- ⚡ Fun fact: ENJOY AND TRAVEL THE WORLD BEFORE ITS COVERS YOU...!!!!!!!!!!!
+- 😄 Pronouns: He / Him 
+- ⚡ Fun fact: Cover the World Before it's Cover's you
